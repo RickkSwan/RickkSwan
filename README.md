@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RickkSwan
-- 👀 I’m interested in everything
+- 👀 I’m new here and interested in everything
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on anything that could be fun 
 - 📫 How to reach me -> my twitter : XRickSwan
